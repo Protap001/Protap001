@@ -1,5 +1,4 @@
-### Hey there ![yoxlalala](https://user-images.githubusercontent.com/90452939/153765995-29cd37da-4ca0-453c-ac21-fffde906c403.gif)
- I'm Tapdıq
+### Hey there ![yoxlalala2](https://user-images.githubusercontent.com/90452939/153766083-37b2efc8-bb84-48d8-a92b-6a0f220c415d.gif)  I'm Tapdıq
 
 
 
