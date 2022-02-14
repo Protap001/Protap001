@@ -1,4 +1,4 @@
-### Hey there ![FluffyObedientAmericancicada-max-1mb](https://user-images.githubusercontent.com/90452939/153892343-125d4fb7-227b-4c5a-9dd2-3b2a6590c083.gif) I'm Tapdıq
+### Hey there ![ezgif com-gif-maker](https://user-images.githubusercontent.com/90452939/153896755-91da347a-e61c-4ac6-a25c-801cb5987d00.gif) I'm Tapdıq
 
 
 
