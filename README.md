@@ -1,4 +1,4 @@
-### Hey there ![ezgif com-gif-maker](https://user-images.githubusercontent.com/90452939/153896755-91da347a-e61c-4ac6-a25c-801cb5987d00.gif) I'm Tapdıq
+### Hey there ![ezgif com-gif-maker (1)](https://user-images.githubusercontent.com/90452939/154030415-dd9d819e-2a67-4964-98ef-f32c63f2014b.gif) I'm Tapdıq
 
 
 
