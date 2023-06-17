@@ -2,13 +2,13 @@
 
 
 
-- 🔭 I’m currently working on creating packages for frontend pages
-- 🌱 I’m currently learning React
+- 🔭 I’m currently working on creating packages for frontend and backend pages
+- 🌱 I’m currently learning Node.js
 - 👯 I’m looking to collaborate on Youtube
 
 - 💬 Ask me about any tech related stuff
 - 📫 How to reach me: [Twitter - Tapdiq_jpg](https://twitter.com/Tapdiq_jpg)  ---  [Youtube - Tapdıq Abi](https://www.youtube.com/channel/UCeauIh2BT3LxDuAmA0LIG-g)  ---  [Instagram - tapdiq.exe](https://www.instagram.com/tapdiq.exe/)
-- ⚡ Fun fact: i spend almost 12 hours play game everyday and listening songs
+- ⚡ Fun fact: I spend almost 8+ hours every day coding and listening to songs
 
 
 
